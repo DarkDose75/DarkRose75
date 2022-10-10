@@ -1,4 +1,30 @@
-                                                                                                                                                        ~.Vader.Equation.~ @ .M^M^~.~^6^.~.^6^~.~^M^M.  >  ~.~  >.~~^.^~~.@.^~~ .~.http.~.:.~.https.~.:.~~^.@.~~^^~~.~
+   moc~.
+...~>^. Rainwizzard.com.^<.~.>^.search.search.^<~.~^>^.Rainwizzard.com.^<~>^~
+..~^<~>^.Rainwizzard.com.^<.>~^.~^<~>^.Rainwizzard.com.^<~~^~.~~>^.Rainwizzard.com.^<~
+>~.com.~.moc.~.moc.~.com...~.moc.~.com.~.com.~moc.~ssr.~.com.~.rss.~.moc~
+>.rss.~ssr
+>.rss. 
+..Channel.
+....~^♠^.~.~^♠^~.
+.....-.Rainwizzard.-.
+.......~^♠^.rainwizzard.com.~^♠^~.
+........ssr.
+.......Channel.
+......~^♠^.~.~^♠^~.
+.....-.Rainwizzard.-.
+.....~^♠^.rainwizzard.com.~^♠^.
+....-.Rainwizzard.-.
+...~^♠^.~.~^♠^~.
+..Channel.
+.rss
+.rss~ssr.
+..~.com~ssr.~.~.moc.~.com~.~.~com.~.moc.~.moc.~.com.~.~.~.moc.~.com.~.com.~.moc~.
+...~>^. Rainwizzard.com.^<.~.>^.search.search.^<~.~^>^.Rainwizzard.com.^<~>^~
+..~^<~>^.Rainwizzard.com.^<.>~^.~^<~>^.Rainwizzard.com.^<~~^~.~~>^.Rainwizzard.com.^<~
+>~.com.~.moc.~.moc.~.com...~.moc.~.com.~.com.~moc.~ssr.~.com.~.rss.~.moc~
+>.rss.~ssr.
+.<...............................Vader.Equation...>< @ ><.M^M^~.~^6^.~.^6^~.~^M^M.><.M^M^~...Vader.Equation..........................................>                                                                                                                                                                                                                                                                                                                                        .~
+                                                                                                                                                       ~.Vader.Equation.~ @ .M^M^~.~^6^.~.^6^~.~^M^M.  >  ~.~  >.~~^.^~~.@.^~~ .~.http.~.:.~.https.~.:.~~^.@.~~^^~~.~
 ~.Vader.Equation.~ @ .M^M^~.~^6^.~.^6^~.~^M^M.  >  ~.~  >.~^♠^.~.~^♠^~.``.-.Rainwizzard.com`.~^♠^.~.~^♠^~..Vader.Equation.~ @ .M^M^~.~^6^.~.^6^~.~^M^M.  > ~.~>.~~^.^~~.@.^~~ .~.http.~.:.~.https.~.:.~~^.@.~~^^~~.~.Vader.Equation.~ @ .M^M^~.~^6^.~.^6^~.~^M^M.  > ~.~>
 >.rss.~.ssr.~.>
 .~^<~>^.GOOGLE.^<~>^~.<~>
